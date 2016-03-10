@@ -1,2 +1,0 @@
-# mynote
-sdfsfdf
